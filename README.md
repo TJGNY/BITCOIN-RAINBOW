@@ -1,0 +1,2 @@
+# BITCOIN-RAINBOW
+Color Money
